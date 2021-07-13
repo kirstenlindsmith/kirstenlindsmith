@@ -1,4 +1,4 @@
-![Kirsten: pronounced Curse-ten](https://media-exp1.licdn.com/dms/image/C4D16AQHDUP4YCuKgkg/profile-displaybackgroundimage-shrink_350_1400/0?e=1603929600&v=beta&t=MiI04MElXgZHICFh3LxYnEk8ftHT8Yc_exWQSu9tTk8)
+![Kirsten: pronounced Curse-ten](https://i.imgur.com/BxDTuqH.jpg)
 
 <!--
 **kirstenlindsmith/kirstenlindsmith** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
