@@ -1,4 +1,4 @@
-![Kirsten: pronounced Curse-ten](https://i.imgur.com/BxDTuqH.jpg)
+![Kirsten: pronounced Curse-ten](https://i.imgur.com/E2S8nKi.png)
 
 <!--
 **kirstenlindsmith/kirstenlindsmith** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
